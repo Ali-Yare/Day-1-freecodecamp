@@ -1,0 +1,1 @@
+Day 1 waxaan practice gareeyay cat build in freecodecamp
